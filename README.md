@@ -1,0 +1,2 @@
+# kando
+naya manchai hami 
